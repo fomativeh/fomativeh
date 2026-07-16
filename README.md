@@ -60,7 +60,7 @@ My backend experience helps me ship end-to-end features cleanly, without fronten
 ---
 
 ### Contact
-- Email: **ufomaitive@gmail.com**
+- Email: **itivejobsapply@gmail.com**
 
 ### Online
 - Twitter: https://twitter.com/fomativeh
